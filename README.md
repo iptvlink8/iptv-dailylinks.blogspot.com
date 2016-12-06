@@ -1,1 +1,1 @@
-# iptvlinksdaily.blogspot.com
+http://iptv-dailylinks.blogspot.com/
